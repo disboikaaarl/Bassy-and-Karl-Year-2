@@ -1,1 +1,1 @@
-# ongoing project (target finish date: 0CT 2025)
+# ongoing project (target finish date: OCT 2025)
